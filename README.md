@@ -1,0 +1,2 @@
+# wotaProject
+anything about idol
